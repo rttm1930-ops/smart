@@ -1,0 +1,2 @@
+# smart
+no turar joylar
